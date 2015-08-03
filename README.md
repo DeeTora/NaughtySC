@@ -8,7 +8,8 @@ Maybe we will make more outfits/monsters later, but sprites alteration requires 
 Donations surely will stimulate it a lot ;)
 
 
-![Waifu!](https://cdn.pbrd.co/images/2s0kfxtO.png)
+![Waifu!](https://cdn.pbrd.co/images/2s2mfOuQ.png)
+install to get it uncensored :P
 
 Get it here - [link](google.com)  
 You need to unzip all files in your Sakura Clicker intallation folder  
