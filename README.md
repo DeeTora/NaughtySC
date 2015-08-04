@@ -8,7 +8,7 @@ Maybe we will make more outfits/monsters later, but sprites alteration requires 
 Donations surely will stimulate it a lot ;)
 
 
-![Waifu!](https://cdn.pbrd.co/images/2s2mfOuQ.png1)  
+![Waifu!](https://cdn.pbrd.co/images/2s2mfOuQ.png)  
 install to get it uncensored :P
   
   
@@ -23,5 +23,5 @@ __Confirm overwriting__.
 If you like it and want us to continue, fell free to donate something  
   
  <a href="https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=QHAHDAUCKEG86"> 
- <img src="https://www.paypalobjects.com/en_US/i/btn/btn_donateCC_LG_global.gif1"> 
+ <img src="https://www.paypalobjects.com/en_US/i/btn/btn_donateCC_LG_global.gif"> 
  </a> 
